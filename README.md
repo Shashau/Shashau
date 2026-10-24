@@ -68,7 +68,7 @@ Currently building my skills in **Cybersecurity and Digital Forensics** while co
 
 🔗 GitHub: [https://github.com/Shashau](https://github.com/Shashau)
 
-💼 LinkedIn: [Connect with me on LinkedIn](https://www.linkedin.com/)
+💼 LinkedIn: [Connect with me on LinkedIn](www.linkedin.com/in/shashank-h-c-66bb402b7)
 
 ---
 
